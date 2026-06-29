@@ -4,7 +4,7 @@
 
 ---
   
-  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( ) |
+  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW](https://archtigerstable.github.io/plants-vs-brainrot-uz66/ ) |
  |---------------------|----------------------:|
 
 
